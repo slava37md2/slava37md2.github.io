@@ -1,1 +1,1 @@
-slava37md2.github.io/page-0.html
+https://slava37md2.github.io/page-0.html
